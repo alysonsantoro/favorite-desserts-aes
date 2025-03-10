@@ -1,5 +1,5 @@
 ## Favorite desserts of the Santoro Lab
 
-- Alyson, **chocolate** torte
+- Alyson, **coconut** cake
 - Lillian, **affogato**
 - Julia, **chocolate chip cookie**

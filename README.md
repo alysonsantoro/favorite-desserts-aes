@@ -3,3 +3,4 @@
 - Alyson, **coconut** cake
 - Lillian, **affogato**
 - Julia, **chocolate chip cookie**
+- Nick, cherry garcia
